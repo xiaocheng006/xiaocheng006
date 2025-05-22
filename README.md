@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @xiaocheng006
 - 👀 I’m interested in cooking
 - 🌱 I’m currently learning cooking
-- 📫 How to reach me 113b11059@mailst.cjcu.edu.com.tw
+- 📫 How to reach me 113b11059@mailst.cjcu.edu.tw
 - 😄 Pronouns:xiao chang
 - ⚡ Fun fact: no
 
